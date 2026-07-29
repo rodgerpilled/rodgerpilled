@@ -1,7 +1,7 @@
 ![ ](https://64.media.tumblr.com/5011d2f31ea3ebeafe88dc1cc4275b78/b667e5c915ef1e27-9d/s500x750/cfcd98180e0411daf5b458009fe10c7b058b9ec7.gif)
 
 
-  ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=rodgers+nuts&color=#)
+ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20closed+cases&color=C7A0D2)ㅤ✦ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20designs+made&color=FFB8EA)ㅤ
 
 read [Rentry.](https://rentry.co) and please sign [book](https://rvffled.atabook.org) ! :3
 
