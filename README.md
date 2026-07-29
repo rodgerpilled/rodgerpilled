@@ -8,8 +8,4 @@ follow my [Tiktok](https://www.tiktok.com/@rvffled?lang=en) if your super cool .
 
 ![ ](https://media.tenor.com/nhElxd5GshsAAAAM/king-dedede-dedede.gif)
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&cover_image=true&theme=default&show_offline=false&background_color=13141f&interchange=false&profanity=false&hide_remaster=false&bar_color=917cc4&bar_color_cover=true">
-  </a>
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&cover_image=false&theme=default&show_offline=false&background_color=13141f&interchange=false&profanity=false&hide_remaster=false&bar_color=917cc4&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
