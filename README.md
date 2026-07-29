@@ -1,7 +1,7 @@
 [![heh-20260227173108.png](https://i.postimg.cc/6q9gcRB8/heh-20260227173108.png)](https://postimg.cc/WFH5bdFV)
 
 
-ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20closed+cases&color=C7A0D2)ㅤ✦ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20designs+made&color=FFB8EA)ㅤ
+![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20closed+cases&color=C7A0D2)ㅤ✦ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20designs+made&color=FFB8EA)
 
 read [Rentry.](https://rentry.co) and please sign [book](https://rvffled.atabook.org) ! :3
 
