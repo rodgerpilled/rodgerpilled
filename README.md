@@ -8,8 +8,7 @@
 
 
 
-ㅤ ۪ㅤ𓈒ֺּㅤ꒰Იᰍ
-<img width="20" height="20" alt="IMG_3511" src="https://github.com/user-attachments/assets/367fa1c5-6044-4904-b1b7-f17319260aa5" /> ꮚ݁𓏼ㅤ𝐚𝕟ʏ 𓂂ㅤ❘❙ㅤმʅᥣㅤ𓈃 🌾  ꒱ㅤ𓐇
+ㅤ ۪ㅤ𓈒ֺּㅤ꒰ <img width="20" height="20" alt="IMG_3511" src="https://github.com/user-attachments/assets/367fa1c5-6044-4904-b1b7-f17319260aa5" />ㅤꮚ݁𓏼ㅤ𝐚𝕟ʏ 𓂂 მll ㅤ𓈃ㅤprns ꒱
  
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&redirect=true">
