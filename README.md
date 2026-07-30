@@ -6,10 +6,8 @@
 
 ㅤㅤ⁰ᨵᩥ⁰ㅤ₊ ׅ  ׄㅤPetra¹ㅤ꣓ㅤ[![Tumblr-l-24381799603354.gif](https://i.postimg.cc/Vkf7hM08/Tumblr-l-24381799603354.gif)](https://postimg.cc/8jYBJ7bK) ݃ ˖ㅤBrownie²
 [![IMG-5114.gif](https://i.postimg.cc/HLZXcfBB/IMG-5114.gif)](https://postimg.cc/p9jp31NF)ㅤ
-𓐇      ⣴❘❙    정보 。📔   ۪    𓈒ֺּ ꒰Იᰍ
-🦦ꮚ݁𓏼゛𝕓𑄜𐐫k𓂂⃨࣪
-❘❙゜n𐐫𝕥ᧉ𑂘。𓈃🌾꒱
-𓐇   (- -)人    𓈈ྀིྀ     𓈒𓏸✿📝。
+𓐇ㅤ⣴❘❙ㅤ정보 。📔ㅤ ۪ㅤ𓈒ֺּㅤ꒰Იᰍ
+🦦ꮚ݁𓏼ㅤ𝕓𑄜𐐫k𓂂ㅤ❘❙ㅤn𐐫𝕥ᧉ𑂘ㅤ𓈃 🌾  ꒱ㅤ𓐇
  
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&redirect=true">
