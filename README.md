@@ -1,5 +1,7 @@
 ㅤbetter on mobile /github app
-[![heh-20260227173108.png](https://i.postimg.cc/6q9gcRB8/heh-20260227173108.png)](https://postimg.cc/WFH5bdFV)
+
+ㅤㅤㅤ<img width="2000" height="2000" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/3f0b0e4f-63d6-45a1-b2fa-6788b50bf6ce" />
+
 
 
 ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20closed+cases&color=C7A0D2)ㅤ✦ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20designs+made&color=FFB8EA)
@@ -8,7 +10,7 @@
 
 
 
-ㅤ ۪ㅤ𓈒ֺּㅤ꒰ <img width="20" height="20" alt="IMG_3511" src="https://github.com/user-attachments/assets/367fa1c5-6044-4904-b1b7-f17319260aa5" />ㅤꮚ݁𓏼ㅤ𝐚𝕟ʏ 𓂂 მll ㅤ𓈃ㅤprns ꒱
+ㅤ ۪ㅤ𓈒ֺּㅤ꒰ <img width="20" height="20" alt="IMG_3511" src="https://github.com/user-attachments/assets/367fa1c5-6044-4904-b1b7-f17319260aa5" />ㅤꮚ݁𓏼ㅤ𝐚𝕟ʏ 𓂂 მll ㅤ𓈃ㅤ⍴ɾղ𝐬 ꒱
  
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&redirect=true">
