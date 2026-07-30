@@ -1,6 +1,6 @@
 hi ts looks ass on pc switch to the github app on mobile thx
-
-ㅤㅤㅤ<img width="2000" height="2000" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/3f0b0e4f-63d6-45a1-b2fa-6788b50bf6ce" />
+<img width="1920" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
+<img width="2000" height="2000" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/3f0b0e4f-63d6-45a1-b2fa-6788b50bf6ce" />
 
 
 
@@ -18,3 +18,4 @@ hi ts looks ass on pc switch to the github app on mobile thx
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&cover_image=true&theme=novatorem&show_offline=false&background_color=13141f&interchange=true&profanity=false&hide_remaster=false&bar_color=917cc4&bar_color_cover=true">
   </a>
 </p>
+<img width="1280" height="258" alt="Nq97k0wuiWOX9x3FHarNB" src="https://github.com/user-attachments/assets/be9ea501-c69c-42aa-b33e-aa694a640c18" />
