@@ -29,7 +29,7 @@
  .  ⊹⠀ PonyTown info
 ⠀<img width="20" height="20" alt="IMG_6236" src="https://github.com/user-attachments/assets/1a36220c-17d6-493f-bfb1-9a96cb9b717a" />
  𓏻  ݂ ۫ ⠀iwc alwys  ⠀ 𓎟𓎡⠀⠀𓈒⠀🎀 ⠀𓏽⑅ ܄⠀  
-*dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།།♡︎ ݂۫⠀⠀⠀۫⠀DW area/fandom iwecuf thxㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
+*dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།།♡︎ ݂۫⠀⠀⠀۫⠀DW area/fandom iwecuf tyㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
 
 ʚ <img width="60" height="40" alt="IMG_9236" src="https://github.com/user-attachments/assets/adf22b84-c7b7-4a76-93a3-cca78f3dff27" />
 <img width="60" height="40" alt="image-2" src="https://github.com/user-attachments/assets/ecfe66cf-d719-4889-9168-e4cf5e1814ca" />
