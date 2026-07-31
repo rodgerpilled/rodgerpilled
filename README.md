@@ -36,7 +36,7 @@
 <img width="60" height="40" alt="Tumblr_l_8112906925636" src="https://github.com/user-attachments/assets/428ca5c5-0fa9-4943-947f-debb3d45667f" />
 <img width="60" height="40" alt="IMG_4033" src="https://github.com/user-attachments/assets/50490e5d-fa1a-431e-b4d0-4e41239f027b" /> ɞ
 
-╱　　th*x*　　　4　　 ㅤ𔓕 　　r*ea*d**i**ng　,　*fa*re**well**⠀!ㅤㅤ﹒ 　　 <img width="20" height="20" alt="Untitled430_20260726003609" src="https://github.com/user-attachments/assets/d8e2bda3-f60d-4dee-8a5f-6c12d626124e" />
+╱　　th*x*　　　4　　 ㅤ𔓕 　　r*ea*d**i**ng　,　*fa*re**well**⠀!ㅤ﹒ <img width="20" height="20" alt="Untitled430_20260726003609" src="https://github.com/user-attachments/assets/d8e2bda3-f60d-4dee-8a5f-6c12d626124e" />
 　　ㅤᱽৎ
   
 <img width="3240" height="2792" alt="20260704_151855" src="https://github.com/user-attachments/assets/d489ad56-4f0d-409b-be0f-a031ad80a2af" />
