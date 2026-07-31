@@ -23,4 +23,12 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dmbkd2mpcz3wjr6d35i7uyfx6e&cover_image=true&theme=novatorem&show_offline=false&background_color=13141f&interchange=true&profanity=false&hide_remaster=false&bar_color=917cc4&bar_color_cover=true">
   </a>
 </p>
+
+⠀ <img width="80" height="20" alt="IMG_1163" src="https://github.com/user-attachments/assets/ec4583f5-a29b-4304-9397-af35a8998984" />
+⠀ ︶︶︶︶︶ ₊˚ 
+ .  ⊹⠀ PonyTown info
+⠀<img width="20" height="20" alt="IMG_6236" src="https://github.com/user-attachments/assets/1a36220c-17d6-493f-bfb1-9a96cb9b717a" />
+ 𓏻  ݂ ۫ ⠀iwc alwys  ⠀ 𓎟𓎡⠀⠀𓈒⠀🎀 ⠀𓏽⑅ ܄⠀  
+*dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།།♡︎ ݂۫⠀⠀⠀۫⠀DW area/fandom iwecuf thxㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
+
 <img width="1280" height="258" alt="Nq97k0wuiWOX9x3FHarNB" src="https://github.com/user-attachments/assets/be9ea501-c69c-42aa-b33e-aa694a640c18" />
