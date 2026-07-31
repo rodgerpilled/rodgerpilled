@@ -31,4 +31,10 @@
  𓏻  ݂ ۫ ⠀iwc alwys  ⠀ 𓎟𓎡⠀⠀𓈒⠀🎀 ⠀𓏽⑅ ܄⠀  
 *dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།།♡︎ ݂۫⠀⠀⠀۫⠀DW area/fandom iwecuf thxㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
 
+ʚ <img width="60" height="40" alt="IMG_9236" src="https://github.com/user-attachments/assets/adf22b84-c7b7-4a76-93a3-cca78f3dff27" />
+<img width="60" height="40" alt="image-2" src="https://github.com/user-attachments/assets/ecfe66cf-d719-4889-9168-e4cf5e1814ca" />
+<img width="60" height="40" alt="Tumblr_l_8112906925636" src="https://github.com/user-attachments/assets/428ca5c5-0fa9-4943-947f-debb3d45667f" />
+<img width="60" height="40" alt="IMG_4033" src="https://github.com/user-attachments/assets/50490e5d-fa1a-431e-b4d0-4e41239f027b" /> ɞ
+
+
 <img width="1280" height="258" alt="Nq97k0wuiWOX9x3FHarNB" src="https://github.com/user-attachments/assets/be9ea501-c69c-42aa-b33e-aa694a640c18" />
