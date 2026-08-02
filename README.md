@@ -8,7 +8,9 @@
 
 <img width="1236" height="225" alt="20260802_195437" src="https://github.com/user-attachments/assets/02c4649c-5407-4afc-bad5-3f9ed2dabba4" />
 
-ㅤㅤTYSMㅤ@pt-hall-of-mediaㅤ
+ㅤ<img width="20" height="20" alt="tumblr_bd82f5bd9dcf2073b5ad71fb77f276be_093ee732_75" src="https://github.com/user-attachments/assets/98366028-635a-4655-9974-23cbd71de941" />
+ㅤTYSMㅤ[@pt-hall-of-media](https://github.com/pt-hall-of-media)ㅤ<img width="20" height="20" alt="tumblr_aef1f99198cee9de6a0751d97a5d7944_180215c5_75" src="https://github.com/user-attachments/assets/48b1a80a-9697-4f3a-887a-77208994340e" />
+
 
 
 
@@ -40,6 +42,10 @@
 <img width="60" height="40" alt="image-2" src="https://github.com/user-attachments/assets/ecfe66cf-d719-4889-9168-e4cf5e1814ca" />
 <img width="60" height="40" alt="Tumblr_l_8112906925636" src="https://github.com/user-attachments/assets/428ca5c5-0fa9-4943-947f-debb3d45667f" />
 <img width="60" height="40" alt="IMG_4033" src="https://github.com/user-attachments/assets/50490e5d-fa1a-431e-b4d0-4e41239f027b" /> ɞ
+
+ㅤ<img width="20" height="20" alt="IMG_4133" src="https://github.com/user-attachments/assets/46aa7ef8-5a27-4f9f-b69e-d5488f89c4b2" />ㅤ ݂ ۫ ㅤㅤ[strawpage](https://pawspect.straw.page) ㅤ  ̣̣ㅤㅤㅤ ִ <img width="20" height="20" alt="IMG_5118" src="https://github.com/user-attachments/assets/ef990075-f4e0-4f6b-aec1-56be8cd063e9" />
+
+
 
 ╱　　t*y*　　　4　　 ㅤ𔓕 　　r*ea*d**i**ng　,　*fa*re**well**⠀!ㅤㅤ<img width="20" height="20" alt="Untitled430_20260726003609" src="https://github.com/user-attachments/assets/d8e2bda3-f60d-4dee-8a5f-6c12d626124e" />ㅤᱽৎ
   
