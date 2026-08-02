@@ -7,6 +7,9 @@
 <img width="1960" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
 <img width="2048" height="2048" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/b27c0778-096d-4f32-80a7-01b533a4acba" />
 
+<img width="1236" height="225" alt="20260802_195437" src="https://github.com/user-attachments/assets/02c4649c-5407-4afc-bad5-3f9ed2dabba4" />
+ㅤ ㅤTYSM @pt-hall-of-media
+
 
 
 
