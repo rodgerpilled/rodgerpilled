@@ -1,7 +1,4 @@
-　 ׂ۪⠀꒰ <img width="20" height="20" alt="IMG_4136" src="" />
-  [![poop](https://github.com/user-attachments/assets/7ed1f24b-0caf-4387-998d-8a9ad1d2988d)](https://github.com/pt-hall-of-media)
-
-ㅤ ۫๑⠀𓈒 **swi**tchㅤᣟ݂ㅤㅤˊ ᆺ ˋ
+　 ׂ۪⠀꒰ <img width="20" height="20" alt="IMG_4136" src="https://github.com/user-attachments/assets/3c6be5a5-dc09-4ec8-9f78-800c02bed96a" />ㅤ ۫๑⠀𓈒 **swi**tchㅤᣟ݂ㅤㅤˊ ᆺ ˋ
  
   *2*　  ི ㅤ ݁  G**i**th*ub* mo*bi*le ap**p**◦ᣟ݂ 4 ᵗʰᵉ bes*t* ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾 
 
@@ -10,7 +7,9 @@
 <img width="2048" height="2048" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/b27c0778-096d-4f32-80a7-01b533a4acba" />
 
 <img width="1236" height="225" alt="20260802_195437" src="https://github.com/user-attachments/assets/02c4649c-5407-4afc-bad5-3f9ed2dabba4" />
-ㅤ ㅤTYSM @pt-hall-of-media
+
+ㅤㅤTYSMㅤ@pt-hall-of-mediaㅤ
+
 
 
 
