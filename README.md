@@ -4,8 +4,8 @@
   *2*　  ི ㅤ ݁  G**i**th*ub* mo*bi*le ap**p**◦ᣟ݂ 4 ᵗʰᵉ bes*t* ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾 
 
     
-<img width="1920" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
-<img width="1000" height="300/" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/3f0b0e4f-63d6-45a1-b2fa-6788b50bf6ce" />
+<img width="1960" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
+<img width="1500" height="295/" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/3f0b0e4f-63d6-45a1-b2fa-6788b50bf6ce" />
 
 
 
