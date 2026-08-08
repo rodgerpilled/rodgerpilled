@@ -56,9 +56,9 @@
 
 <img width="1280" height="258" alt="Nq97k0wuiWOX9x3FHarNB" src="https://github.com/user-attachments/assets/be9ea501-c69c-42aa-b33e-aa694a640c18" />
 
-<img width="45" height="45" alt="ddbced6207d9da62f2c9209a81f6b2f5" src="https://github.com/user-attachments/assets/38bbd2d0-3e31-460a-917f-cdee885b2594" /><img width="45" height="45" alt="7bc686d9df99b15e06f6b4f46eb17505" src="https://github.com/user-attachments/assets/4503fb90-7e46-413b-bd8b-06ea45a81ab2" />
-<img width="45" height="45" alt="62ea93e4bed143827f7f75ea16af9154" src="https://github.com/user-attachments/assets/da996108-1099-4637-9a5b-e88797ccf5d2" />
-<img width="45" height="45" alt="c04031db856be820c324c24470c5c768" src="https://github.com/user-attachments/assets/155b8450-f87f-48b0-b1d4-9181cb99af7e" /><img width="45" height="45" alt="307d83500d683d50bf2e1f0741630b33" src="https://github.com/user-attachments/assets/dfdbd983-6b76-4857-8ff4-426d1cb59782" />
-<img width="45" height="45" alt="c6dba0b7754e811e2b79fb4db0374857" src="https://github.com/user-attachments/assets/07c2a2ff-d7b0-4646-87fc-e668a210e621" />
+<img width="50" height="50" alt="ddbced6207d9da62f2c9209a81f6b2f5" src="https://github.com/user-attachments/assets/38bbd2d0-3e31-460a-917f-cdee885b2594" /><img width="50" height="50" alt="7bc686d9df99b15e06f6b4f46eb17505" src="https://github.com/user-attachments/assets/4503fb90-7e46-413b-bd8b-06ea45a81ab2" />
+<img width="50" height="50" alt="62ea93e4bed143827f7f75ea16af9154" src="https://github.com/user-attachments/assets/da996108-1099-4637-9a5b-e88797ccf5d2" />
+<img width="50" height="50" alt="c04031db856be820c324c24470c5c768" src="https://github.com/user-attachments/assets/155b8450-f87f-48b0-b1d4-9181cb99af7e" /><img width="50" height="50" alt="307d83500d683d50bf2e1f0741630b33" src="https://github.com/user-attachments/assets/dfdbd983-6b76-4857-8ff4-426d1cb59782" />
+<img width="50" height="50" alt="c6dba0b7754e811e2b79fb4db0374857" src="https://github.com/user-attachments/assets/07c2a2ff-d7b0-4646-87fc-e668a210e621" />
 
 
