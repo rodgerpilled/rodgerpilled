@@ -36,8 +36,7 @@
   </a>
 </p>
 
-<img width="154" height="24" alt="ChocoCones" src="https://github.com/user-attachments/assets/a3a1383c-1ff8-48af-a5ca-e18a3b11fbc2" />
-<img width="154" height="24" alt="AlphaSleeper" src="https://github.com/user-attachments/assets/7718a6c7-03c2-47b9-ac4b-819a7a40d532" />
+<img width="154" height="24" alt="ChocoCones" src="https://github.com/user-attachments/assets/a3a1383c-1ff8-48af-a5ca-e18a3b11fbc2" /> <img width="154" height="24" alt="AlphaSleeper" src="https://github.com/user-attachments/assets/7718a6c7-03c2-47b9-ac4b-819a7a40d532" />
 
 
 ⠀ <img width="80" height="20" alt="IMG_1163" src="https://github.com/user-attachments/assets/ec4583f5-a29b-4304-9397-af35a8998984" />
