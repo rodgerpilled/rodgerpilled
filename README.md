@@ -53,6 +53,7 @@
 
 ㅤ<img width="20" height="20" alt="IMG_4133" src="https://github.com/user-attachments/assets/46aa7ef8-5a27-4f9f-b69e-d5488f89c4b2" />ㅤ ݂ ۫ ㅤㅤ[strawpage](https://pawspect.straw.page) ㅤ  ̣̣ㅤㅤㅤ ִ <img width="20" height="20" alt="IMG_5118" src="https://github.com/user-attachments/assets/ef990075-f4e0-4f6b-aec1-56be8cd063e9" />
 
+ㅤ ㅤ<img width="184" height="24" alt="ShowtimeYatta" src="https://github.com/user-attachments/assets/55165b9b-c480-4069-b911-b01cd409152b" />
 
 
 ╱　　t*y*　　　4　　 ㅤ𔓕 　　r*ea*d**i**ng　,　*fa*re**well**⠀!ㅤㅤ<img width="20" height="20" alt="Untitled430_20260726003609" src="https://github.com/user-attachments/assets/d8e2bda3-f60d-4dee-8a5f-6c12d626124e" />ㅤᱽৎ
