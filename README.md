@@ -51,7 +51,7 @@
 <img width="60" height="40" alt="Tumblr_l_8112906925636" src="https://github.com/user-attachments/assets/428ca5c5-0fa9-4943-947f-debb3d45667f" />
 <img width="60" height="40" alt="IMG_4033" src="https://github.com/user-attachments/assets/50490e5d-fa1a-431e-b4d0-4e41239f027b" /> ɞ
 
-ㅤ<img width="20" height="20" alt="IMG_4133" src="https://github.com/user-attachments/assets/46aa7ef8-5a27-4f9f-b69e-d5488f89c4b2" />ㅤ ݂ ۫ ㅤㅤ[strawpage](https://pawspect.straw.page) ㅤ  ̣̣ㅤㅤㅤ ִ <img width="20" height="20" alt="IMG_5118" src="https://github.com/user-attachments/assets/ef990075-f4e0-4f6b-aec1-56be8cd063e9" />
+ㅤ<img width="20" height="20" alt="IMG_4133" src="https://github.com/user-attachments/assets/46aa7ef8-5a27-4f9f-b69e-d5488f89c4b2" />ㅤ ݂ ۫ ㅤㅤ[strawpage](https://itstvtimeeee.straw.page) ㅤ  ̣̣ㅤㅤㅤ ִ <img width="20" height="20" alt="IMG_5118" src="https://github.com/user-attachments/assets/ef990075-f4e0-4f6b-aec1-56be8cd063e9" />
 
 ㅤ ㅤ<img width="184" height="24" alt="ShowtimeYatta" src="https://github.com/user-attachments/assets/55165b9b-c480-4069-b911-b01cd409152b" />
 
