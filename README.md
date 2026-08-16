@@ -2,8 +2,7 @@
 
   ׂ۪⠀꒰ <img width="20" height="20" alt="IMG_4136" src="https://github.com/user-attachments/assets/3c6be5a5-dc09-4ec8-9f78-800c02bed96a" />ㅤ ۫๑⠀𓈒 **swi**tchㅤᣟ݂ㅤㅤˊ ᆺ ˋ
  
-  *2*　  ི ㅤ ݁  *G**i**thub* mo*bi*le ap**p**◦ᣟ݂ 4 ᵗʰᵉ bes*t* ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾 
-
+  *2*　  ི ㅤ ݁  *G**i**thub* mo*bi*le ap**p**◦ᣟ݂ 4 ᵗʰᵉ bes*t* ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(it looks ass on any other device or the browser version) 
     
 <img width="1960" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
 <img width="2048" height="2048" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/b27c0778-096d-4f32-80a7-01b533a4acba" />
