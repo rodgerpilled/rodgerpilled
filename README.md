@@ -2,7 +2,8 @@
 
   ׂ۪⠀꒰ <img width="20" height="20" alt="IMG_4136" src="https://github.com/user-attachments/assets/3c6be5a5-dc09-4ec8-9f78-800c02bed96a" />ㅤ ۫๑⠀𓈒 switchㅤᣟ݂ㅤㅤˊ ᆺ ˋ
  
-  to　  ི ㅤ ݁  GitHub mobile app◦ᣟ݂ 4 ᵗʰᵉ best ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(it looks ass on any other device or the browser version, like genuinely) 
+  to　  ི ㅤ ݁  GitHub mobile app◦ᣟ݂ 4 ᵗʰᵉ best ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(it looks ass on any other device or the browser version, like genuinely) <img width="25" height="25" alt="spamton-deltarune (2)" src="https://github.com/user-attachments/assets/c949f748-acdd-4777-a085-8bb2d7fca9f8" />
+
     
 <img width="1960" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
 <img width="2048" height="2048" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/b27c0778-096d-4f32-80a7-01b533a4acba" />
