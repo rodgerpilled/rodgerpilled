@@ -18,7 +18,7 @@
 
 
 
-ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20closed+cases&color=C7A0D2)ㅤ✦ㅤ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20designs+made&color=FFB8EA)
+![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20closed+cases&color=C7A0D2)  ✦  ![](https://komarev.com/ghpvc/?username=rodgerpilled&label=♡%20designs+made&color=FFB8EA)
 
 <img width="154" height="24" alt="RodgerBlinkie" src="https://github.com/user-attachments/assets/b40f1414-c4e2-47a6-a70d-0b63e0de114f" /> <img width="154" height="24" alt="YattaBlinkie" src="https://github.com/user-attachments/assets/53bee282-1b05-4c71-a0f4-d42b72547ace" />
 
