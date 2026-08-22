@@ -1,8 +1,8 @@
 <img width="500" height="200" alt="20260808_185255" src="https://github.com/user-attachments/assets/d23534e0-9a00-4f44-8ce6-a020259920f2" />
 
-  ׂ۪⠀꒰ <img width="20" height="20" alt="IMG_4136" src="https://github.com/user-attachments/assets/3c6be5a5-dc09-4ec8-9f78-800c02bed96a" />ㅤ ۫๑⠀𓈒 **swi**tchㅤᣟ݂ㅤㅤˊ ᆺ ˋ
+  ׂ۪⠀꒰ <img width="20" height="20" alt="IMG_4136" src="https://github.com/user-attachments/assets/3c6be5a5-dc09-4ec8-9f78-800c02bed96a" />ㅤ ۫๑⠀𓈒 switchㅤᣟ݂ㅤㅤˊ ᆺ ˋ
  
-  *2*　  ི ㅤ ݁  *G**i**thub* mo*bi*le ap**p**◦ᣟ݂ 4 ᵗʰᵉ bes*t* ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(it looks ass on any other device or the browser version) 
+  to　  ི ㅤ ݁  GitHub mobile app◦ᣟ݂ 4 ᵗʰᵉ best ᵉˣᵖᵉʳᶦᵉⁿᶜᵉㅤ ۫٭⠀🐾ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(it looks ass on any other device or the browser version, like genuinely) 
     
 <img width="1960" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
 <img width="2048" height="2048" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/b27c0778-096d-4f32-80a7-01b533a4acba" />
@@ -35,7 +35,7 @@
   </a>
 </p>
 
-<img width="154" height="24" alt="ChocoCones" src="https://github.com/user-attachments/assets/a3a1383c-1ff8-48af-a5ca-e18a3b11fbc2" /> <img width="154" height="24" alt="AlphaSleeper" src="https://github.com/user-attachments/assets/7718a6c7-03c2-47b9-ac4b-819a7a40d532" />
+
 
 
 ⠀ <img width="80" height="20" alt="IMG_1163" src="https://github.com/user-attachments/assets/ec4583f5-a29b-4304-9397-af35a8998984" />
@@ -43,7 +43,7 @@
  .  ⊹⠀ PonyTown info
 ⠀<img width="20" height="20" alt="IMG_6236" src="https://github.com/user-attachments/assets/1a36220c-17d6-493f-bfb1-9a96cb9b717a" />
  𓏻  ݂ ۫ ⠀iwc alwys  ⠀ 𓎟𓎡⠀⠀𓈒⠀🎀 ⠀𓏽⑅ ܄⠀  
-*dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།།♡︎ ݂۫⠀⠀⠀۫⠀DW area/fandom iwecuf thxㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
+*dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།། ♡︎ ݂۫⠀⠀⠀۫⠀ㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
 
 ʚ <img width="60" height="40" alt="IMG_9236" src="https://github.com/user-attachments/assets/adf22b84-c7b7-4a76-93a3-cca78f3dff27" />
 <img width="60" height="40" alt="image-2" src="https://github.com/user-attachments/assets/ecfe66cf-d719-4889-9168-e4cf5e1814ca" />
