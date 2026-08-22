@@ -50,9 +50,9 @@
 <img width="60" height="40" alt="image-2" src="https://github.com/user-attachments/assets/ecfe66cf-d719-4889-9168-e4cf5e1814ca" />
 <img width="60" height="40" alt="Tumblr_l_8112906925636" src="https://github.com/user-attachments/assets/428ca5c5-0fa9-4943-947f-debb3d45667f" />
 <img width="60" height="40" alt="IMG_4033" src="https://github.com/user-attachments/assets/50490e5d-fa1a-431e-b4d0-4e41239f027b" /> ɞ
-ㅤㅤㅤʚ <img width="60" height="40" alt="idk" src="https://github.com/user-attachments/assets/eb605e94-e0bc-4b78-86dd-1d09739f18dc" />
+ㅤㅤㅤ【 <img width="60" height="40" alt="idk" src="https://github.com/user-attachments/assets/eb605e94-e0bc-4b78-86dd-1d09739f18dc" />
 <img width="60" height="40" alt="48950c87ddb5f8f808c673215e5768fd41b92a2d gifv" src="https://github.com/user-attachments/assets/4ef32127-31d1-4566-a631-f92a43da735e" />
- ɞ
+ 】
 
 ㅤ<img width="20" height="20" alt="IMG_4133" src="https://github.com/user-attachments/assets/46aa7ef8-5a27-4f9f-b69e-d5488f89c4b2" />ㅤ ݂ ۫ ㅤㅤ[strawpage](https://partypopperzzz.straw.page) ㅤ  ̣̣ㅤㅤㅤ ִ <img width="20" height="20" alt="IMG_5118" src="https://github.com/user-attachments/assets/ef990075-f4e0-4f6b-aec1-56be8cd063e9" />
 
