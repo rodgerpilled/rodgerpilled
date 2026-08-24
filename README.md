@@ -10,7 +10,7 @@
 
 <img width="1236" height="225" alt="20260802_195437" src="https://github.com/user-attachments/assets/02c4649c-5407-4afc-bad5-3f9ed2dabba4" />
 
-ㅤ<img width="20" height="20" alt="tumblr_bd82f5bd9dcf2073b5ad71fb77f276be_093ee732_75" src="https://github.com/user-attachments/assets/98366028-635a-4655-9974-23cbd71de941" />
+ㅤ<img width="1960" height="132" alt="tumblr_bd82f5bd9dcf2073b5ad71fb77f276be_093ee732_75" src="https://github.com/user-attachments/assets/98366028-635a-4655-9974-23cbd71de941" />
 ㅤTYSMㅤ[@pt-hall-of-media](https://github.com/pt-hall-of-media)ㅤ<img width="20" height="20" alt="tumblr_aef1f99198cee9de6a0751d97a5d7944_180215c5_75" src="https://github.com/user-attachments/assets/48b1a80a-9697-4f3a-887a-77208994340e" />
 
 
