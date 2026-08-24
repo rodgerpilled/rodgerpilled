@@ -6,7 +6,6 @@
 
     
 <img width="1960" height="132" alt="ufPRhyOFsgbor-m9Q1zsW" src="https://github.com/user-attachments/assets/17016981-81e1-40ef-90fa-d21a29b24ff3" />
-<img width="2048" height="2048" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/b27c0778-096d-4f32-80a7-01b533a4acba" />
 
 <img width="1236" height="225" alt="20260802_195437" src="https://github.com/user-attachments/assets/02c4649c-5407-4afc-bad5-3f9ed2dabba4" />
 
@@ -44,7 +43,8 @@
  .  ⊹⠀ PonyTown info
 ⠀<img width="20" height="20" alt="IMG_6236" src="https://github.com/user-attachments/assets/1a36220c-17d6-493f-bfb1-9a96cb9b717a" />
  𓏻  ݂ ۫ ⠀iwc alwys  ⠀ 𓎟𓎡⠀⠀𓈒⠀🎀 ⠀𓏽⑅ ܄⠀  
-*dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།། ♡︎ ݂۫⠀⠀⠀۫⠀ㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
+*dnc*opy⠀⠀,་།་ ۪۪ ˇ ⠀*dns*teal⠀𓈒⠀my skins⠀𓏵𓏻⠀⠀ask 2⠀⠀⏖⠀ c+h⠀🍪 ֪⠀⠀⠀་།། ♡︎ ݂۫⠀ <img width="45" height="45" alt="heh_20260227173108" src="https://github.com/user-attachments/assets/b27c0778-096d-4f32-80a7-01b533a4acba" />
+⠀⠀۫⠀ㅤ𓈒ㅤㅤ︶︶︶︶︶ㅤ<img width="80" height="20" alt="IMG_4483" src="https://github.com/user-attachments/assets/023a014e-453d-45b2-8ac8-ae8551ae8380" />
 
 ʚ <img width="60" height="40" alt="IMG_9236" src="https://github.com/user-attachments/assets/adf22b84-c7b7-4a76-93a3-cca78f3dff27" />
 <img width="60" height="40" alt="image-2" src="https://github.com/user-attachments/assets/ecfe66cf-d719-4889-9168-e4cf5e1814ca" />
